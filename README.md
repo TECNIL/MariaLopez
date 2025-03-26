@@ -1,7 +1,7 @@
 # Presentación
 ## Mis Datos:
 
-Maria camila lopez villa
+Maria Camila Lopez Villa
 
 Tengo 18 años y cumplo el 9 de agosto
 
